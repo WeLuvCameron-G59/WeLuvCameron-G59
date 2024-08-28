@@ -6,7 +6,7 @@
 - Snapchat: weluvcamerong59
 - Discord: weluvcameron
 - 😄 Pronouns: he/him
-- ⚡ Fun fact: I own swords & knives, love $uicideboy$, love games (mostly warframe)
+- ⚡ Fun fact: I own swords & knives, love SuicideboyS, love games (mostly warframe)
 
 <!---
 WeLuvCameron-G59/WeLuvCameron-G59 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
