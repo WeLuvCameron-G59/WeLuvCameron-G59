@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @WeLuvCameron-G59, real name Cameron Bailey
 - 👀 I’m interested in music, games, japanese & chinese culture, and anime
-- 🌱 I’m currently learning Computer Science, this (Git), Geology, sadly more English
+- 🌱 I’m currently learning Computer Science, this (Git), Geology
 - 💞️ I’m looking to collaborate on something, not sure yet
 - 📫 How to reach me:
 - Snapchat: weluvcamerong59
